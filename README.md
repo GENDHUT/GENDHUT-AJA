@@ -1,0 +1,2 @@
+# GENDHUT-AJA
+Baru belajar 
